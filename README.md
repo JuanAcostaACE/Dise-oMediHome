@@ -6,4 +6,3 @@ Juan david Acosta Urbano
 
 Karen Valentina Arteaga Realpe
 
-Matias Castaño Raigoza
